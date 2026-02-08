@@ -1,4 +1,4 @@
-# 高橋洋子 – 残酷な天使のテーゼ (Directors Edit Version)
+# Yoko Takahashi – 残酷な天使のテーゼ
 
 > **歌詞登録ステータス：同期歌詞あり**
 
